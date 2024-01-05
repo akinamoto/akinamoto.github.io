@@ -1,0 +1,1 @@
+# akinamoto.github.io
